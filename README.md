@@ -3,8 +3,8 @@
     **Présentation**
 
 
-**Formation **
-**Wild Code School **
+**Formation**
+**Wild Code School**
 __Développeur web et web mobile__(2019 - 2020)
 **AFOMAV Paris**
 __CAP Opérateur Projectionniste__(2009 - 2010)
@@ -15,10 +15,10 @@ __BTS, Audiovisuel Gestion de production__(2002 - 2004)
 
 
 **Expérience**
-**iConcept **
+**iConcept**
 __Technicienne informatique certifiée Apple__avril 2017 - juillet 2019 - Anglet
 **Apple Retail **
-__Genius _ février 2014 - mars 2017__Bordeaux
+__Genius__ février 2014 - mars 2017__Bordeaux
 __Family Room Specialist__ janvier 2013 - février 2014 - Bordeaux
 __Spécialiste__ avril 2011 - décembre 2012 - Bordeaux
 **UGC**
