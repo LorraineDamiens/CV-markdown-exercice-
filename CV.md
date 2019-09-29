@@ -64,7 +64,7 @@ _Family Room Specialist_  janvier 2013 - février 2014 - Bordeaux
 
 ---
 
-_Spécialiste_avril 2011 - décembre 2012 - Bordeaux
+_Spécialiste_ avril 2011 - décembre 2012 - Bordeaux
 
 ---
 
