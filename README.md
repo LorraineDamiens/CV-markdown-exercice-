@@ -31,7 +31,7 @@ _BTS, Audiovisuel Gestion de production_(2002 - 2004)
 
 ---
 
-**Université Nice Sophia Antipolis (membre d'Université Côte d'Azur) DU, Communication et Marketing européens · (2001 - 2002) **
+**Université Nice Sophia Antipolis (membre d'Université Côte d'Azur) DU, Communication et Marketing européens · (2001 - 2002)**
 
 ---
 
@@ -88,7 +88,7 @@ _Opérateur projectionniste_ janvier 2010 - juin 2010 - Paris
 
 ---
 
-_Chargée de production sur la série "Angelo La Débrouille"_juillet 2008 - août 2009 - Paris
+_Chargée de production sur la série "Angelo La Débrouille"_ juillet 2008 - août 2009 - Paris
 
 ---
 
@@ -96,7 +96,7 @@ _Chargée de production sur la série "Angelo La Débrouille"_juillet 2008 - ao�
 
 ---
 
-_ Assistante de production sur la série "Pat et Stan IV"_ février 2008 - juillet 2008 - Paris
+_Assistante de production sur la série "Pat et Stan IV"_ février 2008 - juillet 2008 - Paris
 
 ---
 
