@@ -1,7 +1,8 @@
 
 
-    **Présentation**
+**Présentation**
 
+---------------------------
 
 **Formation**
 **Wild Code School**
